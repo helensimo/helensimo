@@ -9,4 +9,4 @@ Meu nome é Helen Simões
 ### você pode entar em contato comigo por esse email
 ellieduos@gmail.com
 
-![](https://tenor.com/pt-BR/view/jakelyne-canal-malyne-amandadohit-jake-rindo-jakelyne-rindo-gif-23920154)
+![](https://media1.tenor.com/m/Zu2NtG7Is6cAAAAC/jakelyne-canal-malyne.gif)
